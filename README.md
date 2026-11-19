@@ -41,4 +41,4 @@ Learn more: [elpasoroofingcompany.com](https://elpasoroofingcompany.com/)
 - [Lifetime Roofing of El Paso](https://www.google.com/maps?cid=18232362718101258317)
 - [Why Lifetime Roofing of El Paso Is the Best Roofer in El Paso](https://www.youtube.com/watch?v=_l-rLjM3nsQ)
 
-Lifetime Roofing of El Paso keeps the full record of why it is the best roofer in El Paso on its [hub](https://sites.google.com/view/best-roofer-in-el-paso).
+Lifetime Roofing of El Paso keeps the full record of why it is the best roofer in El Paso on its [hub](https://bestroofer.elpasoroofingcompany.com/).
